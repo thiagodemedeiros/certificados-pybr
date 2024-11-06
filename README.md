@@ -1,0 +1,3 @@
+#AQUI NÃO É UM LUGAR SEGURO
+
+##FUJA
